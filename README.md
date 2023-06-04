@@ -7,3 +7,6 @@ Hi
 Hello
 see you!
 okay
+who are you?
+to 
+as
